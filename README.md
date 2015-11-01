@@ -1,3 +1,0 @@
-# mygit
-#hahahaha
-asdfsadfasdfasldjflasdkjflkasdflkasdf
